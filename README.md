@@ -23,6 +23,5 @@
 
  * [Instagram ](https://www.instagram.com/iam.mayurpatil/)
  * [Website ](https://mayurpatil.online)
- * [linkedin](linkedin.com/in/mayur-patil-715878245/)
 
 
